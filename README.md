@@ -1,3 +1,3 @@
 
-<img src="https://github.com/asadbek1803/asadbek1803/assets/97333773/5087c26e-26b9-4079-bf4b-7a860a15dff4.gif">
+<img src="https://user-images.githubusercontent.com/74038190/238353480-219bcc70-f5dc-466b-9a60-29653d8e8433.gif">
 <h3>Assalomu alaykum!</h3>
